@@ -1,0 +1,1 @@
+# LanTinG-coin
